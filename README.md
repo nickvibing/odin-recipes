@@ -1,0 +1,1 @@
+This is my second project (second try of the recipe project. I'm not going to flunk out on coding this time. I'm fed up of always have assing shit. I'm not gonna half ass this shit this time. I will reflect on this when I'm done.
